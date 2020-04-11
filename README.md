@@ -1,1 +1,0 @@
-# mbrSkola.github.io
